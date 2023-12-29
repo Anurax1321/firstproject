@@ -1,1 +1,1 @@
-hey how are you doign
+hey how are you doing
